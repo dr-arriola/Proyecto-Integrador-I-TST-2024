@@ -83,7 +83,7 @@ La forma de valoración se realizará con 1 trabajo práctico semanal y 1 proyec
 Se logra obteniendo:  
 Al menos 4 evidencias aprobadas.
 Un puntaje final de 4 (en la escala 0-10) o bien 40 (en la escala 0-100) 
-Asistencia para la regularidad.
+Asistencia para la  regularidad.
 
  PROMOCIÓN
 Se logra obteniendo: 
